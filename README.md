@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FedDiSte
+- 👀 I’m interested in Web and Desktop programs
+- 🌱 I’m currently learning php and java
+- 💞️ I’m looking to collaborate on everyrthing new
+- 📫 How to reach me fededark0220@gmail.com
